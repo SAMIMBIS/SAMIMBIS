@@ -76,7 +76,7 @@
 
 ## 🤝 Connect With Me
 
-💼 LinkedIn: https://linkedin.com/in/samim-biswas-1a941817b
+💼 LinkedIn: www.linkedin.com/in/samim09
 
 📧 Email: rb743193@gmail.com
 
